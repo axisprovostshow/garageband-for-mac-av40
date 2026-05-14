@@ -1,4 +1,4 @@
-# 
+# GarageBand for macOS premium Script: lower-thirds & subtitle-generator offers the most advanced GarageBand for macOS script, with lower-thirds and subtitle-generator. Ideal for
 
 
 
